@@ -1,0 +1,1 @@
+# syurotiku.github.io
